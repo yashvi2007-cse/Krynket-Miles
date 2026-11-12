@@ -17,6 +17,7 @@
 </p>
 
 ---
+<img width="1672" height="941" alt="Krynket Miles_ Sunset Road Adventure" src="https://github.com/user-attachments/assets/a37c07d5-ac9b-474f-b72b-0244c583af00" />
 
 ## 01. The Vision
 
